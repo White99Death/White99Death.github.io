@@ -1,1 +1,1 @@
-# White99Death.github.io
+# Wizard
